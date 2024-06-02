@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **ofahmy1234@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Cvutod3Uo9q0RhiJyJy7yU52lQQCUWRl/view?usp=sharing](https://drive.google.com/file/d/1Cvutod3Uo9q0RhiJyJy7yU52lQQCUWRl/view?usp=sharing)
+- 📄 Know about my experiences from my [resume](https://drive.google.com/file/d/1zvFoba7nC1fQJKPMBY2oS_T_ZxvUx2zo/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
